@@ -1,0 +1,1 @@
+## Spankfans - web3 only
